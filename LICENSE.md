@@ -1,4 +1,4 @@
-#  
+#  Experience steal a brainrot like never before with steal a brainrot rare Scripts, the #1 Script. Includes god mode and auto-farm for unbeatable
 
 
 
